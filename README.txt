@@ -1,5 +1,5 @@
 I like learning things the hard way.
-Break something. Facepalm. Fix it. Make it better. Repeat.
+Break something. *Facepalm* Fix it. Make it better. Repeat.
 
 twitter.com/henrysabio
 
